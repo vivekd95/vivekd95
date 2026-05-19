@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **connectwithvivd@gmail.com**
 
-- Have a look at **https://wwww.vivekdhiman.com/**
+- Have a look at **https://www.vivekdhiman.com/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
